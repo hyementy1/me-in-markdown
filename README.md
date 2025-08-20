@@ -9,7 +9,7 @@ I hope to achive a A in this class and get at least a 4 on the AP test. One of t
 
 ## My PlayList
 
-[This is my spotify playlist!]()
+[This is my spotify playlist!](https://open.spotify.com/playlist/1v8kBuTu442DmBpWFYqcFm)
 
 ## Collage / Moodboard
 
